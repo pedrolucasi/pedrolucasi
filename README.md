@@ -21,7 +21,7 @@ Sou entusiasta do desenvolvimento backend e segurança da informação!
 
 ### Contatos 📱📥
 
-####  E-mail - [pedrolucascef@gmail.com](mailto:pedrolucascef@gmail.com)
+####  E-mail - [pp.pedro.sb@gmail.com](mailto:pp.pedro.sb@gmail.com)
 ####  Linkedln - [pedrolucasi](https://linkedin.com/in/pedro-lucas-b7a2b0208) 
 
 
